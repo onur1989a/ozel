@@ -1,0 +1,2 @@
+# ozel
+karısık
